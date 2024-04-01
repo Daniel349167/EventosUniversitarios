@@ -1,4 +1,5 @@
-![image](https://github.com/Daniel349167/challenge-Tynpu/assets/62466867/141e9c8c-1daf-4356-a979-34a3d26984c1)
+![image](https://github.com/Daniel349167/challenge-Tynpu/assets/62466867/a9100eef-94b5-4981-b9f0-7af047f8a71f)
+
 
 ![image](https://github.com/Daniel349167/challenge-Tynpu/assets/62466867/14f552b4-9ad2-4785-8729-1b550f774b46)
 
